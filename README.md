@@ -7,7 +7,7 @@
 ### ***! I WILL GIVE 1 FOR FREE TO THE FIRST TO FORK AND SEND PROOF TO https://t.me/+XRwISLy03y01YTlk***
 
 
-### > ✔️ **PURCHASE (18€): Send ***/buy*** to https://t.me/tiktokcoinsrechargebot** Payment in LTC or BTC.
+> ✔️ **PURCHASE (18€): Send ***/buy*** to https://t.me/tiktokcoinsrechargebot** Payment in LTC or BTC.
 
 
 >⚠️ ***ATTENTION!*** **I don't tell or encourage anyone to do this kind of thing, I'm just promoting my product!**
