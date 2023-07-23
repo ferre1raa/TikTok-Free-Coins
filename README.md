@@ -7,3 +7,6 @@
 **PURCHASE (18€): Send /buy to https://t.me/tiktokcoinsrechargebot**
 
 > ⚠️ ***ATTENTION!*** **I don't tell or encourage anyone to do this kind of thing, I'm just promoting my product!**
+
+
+![](https://postimg.cc/gallery/ZR3ZwsM)
