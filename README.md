@@ -4,9 +4,6 @@
 
 ### This is a method used to "steal" coins in livestreams on TikTok, it has probably already appeared on Fy. In which they promise to multiply someone's coins. For example, someone sends you a gift worth 100 points and they promise to give you 1000 in return.
 
-### ***! I WILL GIVE 1 FOR FREE TO THE FIRST TO FORK AND SEND PROOF TO https://t.me/+XRwISLy03y01YTlk***
-
-
 > ✔️ **PURCHASE (18€): Send ***/buy*** to https://t.me/tiktokcoinsrechargebot** Payment in LTC or BTC.
 
 
