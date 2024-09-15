@@ -1,6 +1,6 @@
 # TikTok Coins Recharge Page
 
-> ✔️ **PURCHASE (5€ minimum): Send ***/coins*** to https://t.me/tiktokcoinsrechargebot** Payment via Stripe.
+> ✔️ **PURCHASE (18$ minimum): Send message to t.me/usertiktokcoins
 
 
 >⚠️ ***ATTENTION!*** **I don't tell or encourage anyone to do this kind of thing, I'm just promoting my product!**
