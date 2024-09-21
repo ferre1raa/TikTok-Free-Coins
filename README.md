@@ -2,6 +2,8 @@
 
 > ✔️ **PURCHASE (15$): Send message to https://t.me/usertiktokcoins
 
+[ SEND " I want to buy the page " ]
+Payments via secure gateway
 
 >⚠️ ***ATTENTION!*** **I don't tell or encourage anyone to do this kind of thing, I'm just promoting my product!**
 
