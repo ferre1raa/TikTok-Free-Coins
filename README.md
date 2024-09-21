@@ -1,6 +1,6 @@
 # TikTok Coins Recharge Page
 
-> ✔️ **PURCHASE (20$): Send message to https://t.me/usertiktokcoins
+> ✔️ **PURCHASE (15$): Send message to https://t.me/usertiktokcoins
 
 
 >⚠️ ***ATTENTION!*** **I don't tell or encourage anyone to do this kind of thing, I'm just promoting my product!**
