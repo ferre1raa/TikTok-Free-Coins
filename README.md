@@ -1,6 +1,6 @@
 # TikTok Coins Recharge Page
 
-> ✔️ **PURCHASE (15$ 2̶0̶$̶ ) Send message to https://t.me/usertiktokcoins
+> ✔️ **PURCHASE (15$ 2̶0̶$̶ ) Send message to https://t.me/ferre1raa
 
 [ SEND " I want to buy the page " ]
 Payments via secure gateway
